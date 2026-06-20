@@ -9,7 +9,7 @@
 ‎ 
 ‎ 
 ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="16" height="16" alt="tumblr_lkl6ql3g6n1qfamg6" src="https://github.com/user-attachments/assets/b35a3a3d-332a-4467-b90f-5a3105cb90a6" /> ❝ you should stay close, it's better. ❞
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ <img width="16" height="16" alt="tumblr_lkl6ql3g6n1qfamg6" src="https://github.com/user-attachments/assets/b35a3a3d-332a-4467-b90f-5a3105cb90a6" /> ❝ you should stay close, it's better. ❞
 
 
 
