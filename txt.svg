@@ -1,0 +1,9 @@
+<svg width="300" height="50" xmlns="http://w3.org">
+  <defs>
+    <linearGradient id="gradient">
+      <stop offset="0%" stop-color="#60b49b" />
+      <stop offset="100%" stop-color="#81D4B9" />
+    </linearGradient>
+  </defs>
+  <text x="9" y="35" font-family="Arial" font-size="35" fill="url(#gradient)">Your biggest mistake is going to be keeping me alive</text>
+</svg>
