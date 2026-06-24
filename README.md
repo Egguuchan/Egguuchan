@@ -20,7 +20,7 @@ $${\color{#81D4B9}“Your \space biggest \space mistake \space is \space going \
 >
 >
 
-‎‎$${\color{#44695F}“No \space art \space here \space belongs \space 2 \space me \space credits \space 2 \space the \space owners.”}$$
+$${\color{#44695F}“No \space art \space here \space belongs \space 2 \space me \space ..credits \space 2 \space the \space creators.”}$$
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎<img  alt="178227197368377428" src="https://github.com/user-attachments/assets/8eb97a1f-ee20-4874-a766-2d486a82ebef" />
 
